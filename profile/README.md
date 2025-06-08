@@ -1,2 +1,2 @@
-# Hello, Cosmos! :wave:
+# Hello, Prienz! :wave:
 
